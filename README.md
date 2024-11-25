@@ -1,6 +1,9 @@
         ＞　 ◞ ◞ 　 ⟡　 ◞ ◞ 　 ＜
-                    >ᴗ<    ︴molly !!
-                 hii, if u see me plz interact..! btw im a minor so dni pedos 𝜗 ᴗ ‸ ᴗ)  esfj  .ᐟ.ᐟ
+ᯓ★ (molly)
+ᡣ𐭩 | @meowinfetti 🐧 *.°•
+esfj • she/her
+❝PLZ SIGN MY ATA❞
+     
 
 <!---
 meowinfetti/meowinfetti is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
