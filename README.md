@@ -1,8 +1,6 @@
-- 👋 Hi, I’m Molly
-- 🧁 I’m interested in ALOTTA STUFF
-- 🐧 I’m currently learning nothing bc im stupid
-- 🎗 Pronouns: she/her/hers or any
-- 🎀 Fun fact: i have adhd ig
+        ＞　 ◞ ◞ 　 ⟡　 ◞ ◞ 　 ＜
+                    >ᴗ<    ︴molly !!
+                 hii, if u see me plz interact..! btw im a minor so dni pedos 𝜗 ᴗ ‸ ᴗ)  esfj  .ᐟ.ᐟ
 
 <!---
 meowinfetti/meowinfetti is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
