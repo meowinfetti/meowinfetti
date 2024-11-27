@@ -3,8 +3,6 @@
 ᡣ𐭩 | @meowinfetti 🐧 *.°•
 esfj • she/her
 ❝PLZ SIGN MY ATA❞
-https://meowinfetti.straw.page/
-     
 
 <!---
 meowinfetti/meowinfetti is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
