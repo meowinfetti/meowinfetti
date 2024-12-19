@@ -1,8 +1,7 @@
-        ＞　 ◞ ◞ 　 ⟡　 ◞ ◞ 　 ＜
-ᯓ★ (molly)
-ᡣ𐭩 | @meowinfetti 🐧 *.°•
-esfj • she/her
-❝PLZ SIGN MY ATA❞
+╭ @meowinfetti ♡‧₊˚
+┆❝ sheノher ❞
+┆⋆˚ 🎞️ ˖° 21 ↺
+╰ ➤ ᥫ᭡ esfp
 
 <!---
 meowinfetti/meowinfetti is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
