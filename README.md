@@ -1,7 +1,7 @@
 ╭ @meowinfetti ♡‧₊˚
 ┆❝ sheノher ❞
-┆⋆˚ 🎞️ ˖° 31 ↺
-╰ ➤ ᥫ᭡ esfp
+┆⋆˚ 🎞️ ˖° honaemu kinnie
+╰ ➤ ᥫ᭡ i have adhd, so i apologize if i annoy you.
 
 <!---
 meowinfetti/meowinfetti is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
